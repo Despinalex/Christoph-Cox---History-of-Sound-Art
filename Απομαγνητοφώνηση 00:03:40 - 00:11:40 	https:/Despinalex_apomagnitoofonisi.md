@@ -1,5 +1,6 @@
-#Απομαγνωτοφώνηση
-##00:03:40 - 00:11:40
+# Απομαγνητοφώνηση
+
+## 00:03:40 - 00:11:40
 
 Thanks very much Catherine and thanks to Martin Wayland and Martin Lucy for inviting me to give talk today. The occasion for the talk is I think the first sonic intervention into the Barnes collection a piece by Andrew Honick called Θnbounded Ηistories, which I haven’t yet got the chance to experience of tomorrow.                         
 
